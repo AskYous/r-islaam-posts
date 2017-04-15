@@ -4,7 +4,7 @@
 
 All praise is due to Allaah, the lord of the worlds. And may peace and blessings of Allaah be upon his messenger *(sallallaahu 'alayhi wa sallam)*.
 
-This post will be, *In Saa` Allaah*, a proof that all supplication is due to Allaah alone, and a refutation against those who say that supplication to the dead, **even if it be taking them as intermediaries**, is *Shirk* (polytheism / taking partners) with Allaah, giving evidences from The Qur'aan and the Sunnah, as well as evidence from the Sahaabah, their students, and their student's students, whom the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* said are the best of generations (see Saheeh Muslim, *Hadeeth* 2536), and the later scholars.
+This post will be, *In Saa` Allaah*, a proof that all supplication is due to Allaah alone, and a refutation against those who say that supplication to the dead, **even if it be taking them as intermediaries**, is *Shirk* (polytheism / taking partners) with Allaah, giving evidences from The Qur'aan and the authentic Sunnah.
 
 ## 2. Evidence from the Qur'aan
 
@@ -38,7 +38,7 @@ Here, Allaah quoted Himself inviting His servants to call upon Him. After this i
 
 > "‏ مَنْ تَكَفَّلَ لِي أَنْ لاَ يَسْأَلَ النَّاسَ شَيْئًا وَأَتَكَفَّلَ لَهُ بِالْجَنَّةِ ‏"‏ ‏.‏ فَقَالَ ثَوْبَانُ أَنَا ‏.‏ فَكَانَ لاَ يَسْأَلُ أَحَدًا شَيْئًا"
 
-> Whoever guarantee  me that he will not ask the people for anything, I guarantee him paradise. - Sunan Abi Dawood (Sunan Abi Dawud 1643). Rated authentic by Al-Albaanee
+> Whoever guarantee  me that he will not ask the people for anything, I guarantee him paradise. - Sunan Abee Dawood (1643). Rated authentic by Al-Albaanee
 
 And the *Hadeeth* ends with the narrator of the *Hadeeth* and *Sahaabah* (companion) of the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* not asking anyone for anything.
 
@@ -46,6 +46,16 @@ And the *Hadeeth* ends with the narrator of the *Hadeeth* and *Sahaabah* (compan
 
 > إِذَا سَأَلْتَ فَاسْأَلِ اللَّهَ وَإِذَا اسْتَعَنْتَ فَاسْتَعِنْ بِاللَّهِ
 
-> When you ask, ask Allaah, and when you seek aid, seek Allaah's aid. - Sunan at-Tirmidhee (Vol. 4, Book 11, Hadith 2516). Rated authentic by at-Tirmidhee.
+> When you ask, ask Allaah, and when you seek aid, seek Allaah's aid. - Sunan at-Tirmidhee (*Hadeeth* 2516). Rated authentic by at-Tirmidhee.
 
 These two *Ahadeeth* from the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* are extremely clear. The first, he advises to not ask anyone for anything. So why ask those who are dead for anything, including intercession, when the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* **guaranteed** paradise to the one who does not ask **anyone** for **anything**? If a person wanted to be guaranteed paradise, then he should stay away from asking the dead for help. And the latter narration is advice to ask Allaah directly! As he *(sallallaahu 'alayhi wa sallam)* said: **"When you ask, ask Allaah."**
+
+## 3.3 Allaah's Messenger Informing That Supplication is *Shirk* (Polytheism)
+
+> الدُّعَاءُ هُوَ الْعِبَادَةُ ‏{‏ قَالَ رَبُّكُمُ ادْعُونِي أَسْتَجِبْ لَكُمْ ‏}
+
+> Supplication (du'a') is itself the worship. (He then recited:) "And your Lord said: Call on Me, I will answer you" (xI.60). - Sunan Abee Dawood (1479). Rated authentic by Al-Albaanee
+
+This *Hadeeth* is crystal clear. The supplication is itself worship. This means that when one calls upon Allaah, that calling worshipping Allaah. And it also means that when one calls upon the dead, that call is worshipping the dead, because he *(sallallaahu 'alayhi wa sallam)* said: **Supplication (du'a') is itself the worship.** Then he recited the verse in Soorat al-A'raaf in which Allaah invites His servants to call upon him. How clear is this narration... and here come the Soofees and the Shee'ahs saying to call upon saints and their Imaams.
+
+Want to learn more? Visit http://www.tawhidfirst.com/monotheism/.
