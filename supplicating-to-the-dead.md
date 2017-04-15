@@ -26,4 +26,10 @@ Here, Allaah reveals to His messenger *(sallallaahu 'alayhi wa sallam)* that the
 
 ### 2.3 Allaah's Invitation to Call Upon Him and His Promise of a Response
 
-> وَقَالَ رَبُّكُمُ ادْعُونِي أَسْتَجِبْ لَكُمْ 
+> وَقَالَ رَبُّكُمُ ادْعُونِي أَسْتَجِبْ لَكُمْ
+
+> And your Lord said: "**Invoke Me**, [i.e. believe in My Oneness (Islamic Monotheism)] (and ask Me for anything) **I will respond** to your (invocation). - Soorat Ghaafir (40:60)
+
+Here, Allaah quoted Himself inviting His servants to call upon Him. After this invitation, He promises that He will respond. And Allaah never breaks His promise. So why call upon other than Allaah if Allaah invites us to call upon Him? Is it that He will not respond to us? How can one say such a statement when Allaah said **"I will respond"**?
+
+### Evidence from the Sunnaah
