@@ -23,3 +23,7 @@ Here, Allaah gives the Muslims a prayer they say to Allaah, which includes **"Yo
 > And the mosques are for Allah (Alone), **so invoke not anyone along with Allah**. - Soorat Al-Jinn (72:18)
 
 Here, Allaah reveals to His messenger *(sallallaahu 'alayhi wa sallam)* that the *Masaajid* (Mosques) are for Allaah, and to **not call with Allaah anyone else**. So this means that if anyone supplicates to anyone other than Allaah, then they are making the Mosque for other than Allaah. Look how Allaah puts these two in the same sentence. First, Allaah says that the *Masaajid* are for Allaah alone. Then he decudes from that (with His word "Fa", which means "so", which means the following is deduced from the previous statement), that we shouldn't call upon anyone other than Allaah. This means calling upon anyone besides Allaah is making the Mosque for someone besides Allaah.
+
+### 2.3 Allaah's Invitation to Call Upon Him and His Promise of a Response
+
+> وَقَالَ رَبُّكُمُ ادْعُونِي أَسْتَجِبْ لَكُمْ 
