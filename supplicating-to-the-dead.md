@@ -20,7 +20,7 @@ Here, Allaah gives the Muslims a prayer they say to Allaah, which includes **"Yo
 
 > وَأَنَّ الْمَسَاجِدَ لِلَّهِ فَلَا تَدْعُوا مَعَ اللَّهِ أَحَدًا
 
-> And the mosques are for Allah (Alone), **so invoke not anyone along with Allah**. - Soorat Al-Jinn (72:18)
+> And the mosques are for Allaah (Alone), **so invoke not anyone along with Allaah**. - Soorat Al-Jinn (72:18)
 
 Here, Allaah reveals to His messenger *(sallallaahu 'alayhi wa sallam)* that the *Masaajid* (Mosques) are for Allaah, and to **not call with Allaah anyone else**. So this means that if anyone supplicates to anyone other than Allaah, then they are making the Mosque for other than Allaah. Look how Allaah puts these two in the same sentence. First, Allaah says that the *Masaajid* are for Allaah alone. Then he decudes from that (with His word "Fa", which means "so", which means the following is deduced from the previous statement), that we shouldn't call upon anyone other than Allaah. This means calling upon anyone besides Allaah is making the Mosque for someone besides Allaah.
 
@@ -32,4 +32,20 @@ Here, Allaah reveals to His messenger *(sallallaahu 'alayhi wa sallam)* that the
 
 Here, Allaah quoted Himself inviting His servants to call upon Him. After this invitation, He promises that He will respond. And Allaah never breaks His promise. So why call upon other than Allaah if Allaah invites us to call upon Him? Is it that He will not respond to us? How can one say such a statement when Allaah said **"I will respond"**?
 
-### Evidence from the Sunnaah
+## 3. Evidence from the Sunnaah
+
+## 3.1 Allaah's Messenger ‏‏Advising Not To Ask Anyone For Anything
+
+> "‏ مَنْ تَكَفَّلَ لِي أَنْ لاَ يَسْأَلَ النَّاسَ شَيْئًا وَأَتَكَفَّلَ لَهُ بِالْجَنَّةِ ‏"‏ ‏.‏ فَقَالَ ثَوْبَانُ أَنَا ‏.‏ فَكَانَ لاَ يَسْأَلُ أَحَدًا شَيْئًا"
+
+> Whoever guarantee  me that he will not ask the people for anything, I guarantee him paradise. - Sunan Abi Dawood (Sunan Abi Dawud 1643). Rated authentic by Al-Albaanee
+
+And the *Hadeeth* ends with the narrator of the *Hadeeth* and *Sahaabah* (companion) of the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* not asking anyone for anything.
+
+## 3.2 Allaah's Messenger Advising To Ask Only Allaah
+
+> إِذَا سَأَلْتَ فَاسْأَلِ اللَّهَ وَإِذَا اسْتَعَنْتَ فَاسْتَعِنْ بِاللَّهِ
+
+> When you ask, ask Allaah, and when you seek aid, seek Allaah's aid. - Sunan at-Tirmidhee (Vol. 4, Book 11, Hadith 2516). Rated authentic by at-Tirmidhee.
+
+These two *Ahadeeth* from the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* are extremely clear. The first, he advises to not ask anyone for anything. So why ask those who are dead for anything, including intercession, when the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* **guaranteed** paradise to the one who does not ask **anyone** for **anything**? If a person wanted to be guaranteed paradise, then he should stay away from asking the dead for help. And the latter narration is advice to ask Allaah directly! As he *(sallallaahu 'alayhi wa sallam)* said: **"When you ask, ask Allaah."**
