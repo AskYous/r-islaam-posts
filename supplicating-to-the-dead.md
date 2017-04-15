@@ -32,7 +32,7 @@ Here, Allaah reveals to His messenger *(sallallaahu 'alayhi wa sallam)* that the
 
 > And your Lord said: "**Invoke Me**, [i.e. believe in My Oneness (Islamic Monotheism)] (and ask Me for anything) **I will respond** to your (invocation). - Soorat Ghaafir (40:60)
 
-Here, Allaah quoted Himself inviting His servants to call upon Him. After this invitation, He promises that He will respond. And Allaah never breaks His promise. So why call upon other than Allaah if Allaah invites us to call upon Him? Is it that He will not respond to us? How can one say such a statement when Allaah said **"I will respond"**?
+Here, Allaah quoted Himself inviting His servants to call upon Him. After this invitation, He promised that He will respond. And Allaah never breaks His promise. So why call upon other than Allaah if Allaah invites us to call upon Him? Is it that He will not respond to us? How can one say such a statement when Allaah said **"I will respond"**?
 
 ## 3. Evidence from the Sunnaah
 
@@ -42,7 +42,7 @@ Here, Allaah quoted Himself inviting His servants to call upon Him. After this i
 
 > Whoever guarantee  me that he will not ask the people for anything, I guarantee him paradise. - Sunan Abee Dawood (1643). Rated authentic by Al-Albaanee
 
-And the *Hadeeth* ends with the narrator of the *Hadeeth* and *Sahaabah* (companion) of the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* not asking anyone for anything.
+And the *Hadeeth* ends with the *Sahaabah* (companion) of the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* not asking anyone for anything.
 
 ## 3.2 Allaah's Messenger Advising To Ask Only Allaah
 
@@ -50,7 +50,7 @@ And the *Hadeeth* ends with the narrator of the *Hadeeth* and *Sahaabah* (compan
 
 > When you ask, ask Allaah, and when you seek aid, seek Allaah's aid. - Sunan at-Tirmidhee (*Hadeeth* 2516). Rated authentic by at-Tirmidhee.
 
-These two *Ahadeeth* from the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* are extremely clear. The first, he advises to not ask anyone for anything. So why ask those who are dead for anything, including intercession, when the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* **guaranteed** paradise to the one who does not ask **anyone** for **anything**? If a person wanted to be guaranteed paradise, then he should stay away from asking the dead for help. And the latter narration is advice to ask Allaah directly! As he *(sallallaahu 'alayhi wa sallam)* said: **"When you ask, ask Allaah."**
+These above two *Ahadeeth* from the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* are extremely clear. In the first, he advises to not ask anyone for anything. So why ask those who are dead for anything, including intercession, when the messenger of Allaah *(sallallaahu 'alayhi wa sallam)* **guaranteed** paradise to the one who does not ask **anyone** for **anything**? If a person wanted to be guaranteed paradise, then he should stay away from asking the dead for help. And the latter narration is advice to ask Allaah directly! As he *(sallallaahu 'alayhi wa sallam)* said: **"When you ask, ask Allaah."**
 
 ## 3.3 Allaah's Messenger Informing That Supplication is *Shirk* (Polytheism)
 
@@ -58,6 +58,6 @@ These two *Ahadeeth* from the messenger of Allaah *(sallallaahu 'alayhi wa salla
 
 > Supplication (du'a') is itself the worship. (He then recited:) "And your Lord said: Call on Me, I will answer you" (xI.60). - Sunan Abee Dawood (1479). Rated authentic by Al-Albaanee
 
-This *Hadeeth* is crystal clear. The supplication is itself worship. This means that when one calls upon Allaah, that calling worshipping Allaah. And it also means that when one calls upon the dead, that call is worshipping the dead, because he *(sallallaahu 'alayhi wa sallam)* said: **Supplication (du'a') is itself the worship.** Then he recited the verse in Soorat al-A'raaf in which Allaah invites His servants to call upon him. How clear is this narration... and here come the Soofees and the Shee'ahs saying to call upon saints and their Imaams.
+This *Hadeeth* is crystal clear. The supplication is itself worship. This means that when one calls upon Allaah, that calling is an act of worship to Allaah. And it also means that when one calls upon the dead, that calling is an act of worship to the dead, because he *(sallallaahu 'alayhi wa sallam)* said: **Supplication (du'a') is itself the worship.** Then he recited the verse in Soorat al-A'raaf in which Allaah invites His servants to call upon him. How clear is this narration! And here come the Soofees and the Shee'ahs and the ignorant saying to call upon saints and their Imaams, or those who say that calling upon other than Allaah is *Haraam* (forbidden) but not *Shirk*. So how can one claim that supplicating to the dead is not worship, when Allah's messenger *(sallallaahu 'alayhi wa sallam)* said **"Supplication (du'a') is itself the worship."**
 
 Want to learn more? Visit http://www.tawhidfirst.com/monotheism/.
