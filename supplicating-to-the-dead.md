@@ -14,10 +14,12 @@ This post will be, *In Saa` Allaah*, a proof that all supplication is due to All
 
 > You (Alone) we worship, and **you (Alone) we ask for help** (for each and everything). - Soorat Al-Faatihah (1:5)
 
-Here, Allaah gives the Muslims a prayer they say to Allaah, which includes **"You alone do we worship, and you alone do we ask for help."** And the words that indicate that Allaah alone is worshipped and asked for help is the Arabic used in the quoted verse, which is "Iyyaaka", which means "You alone". Similarly, Allaah says to the children of Israel **"[A]nd fear Me and Me (Ar. Iyaayaa) Alone"** - (Soorat Al-Baqarah (2:41)). Allaah also says "**O My slaves who believe! Certainly, spacious is My earth. Therefore worship Me (Ar. Iyaayaa) (Alone)."** So how can you permit asking the dead for help when Allaah clearly states that we ask him **alone** for help?
+Here, Allaah gives the Muslims a prayer they say to Allaah, which includes **"You alone do we worship, and you alone do we ask for help."** And the words that indicate that Allaah alone is worshipped and asked for help is the Arabic used in the quoted verse, which is "Iyyaaka", which means "You alone". Similarly, Allaah says to the children of Israel **"[A]nd fear Me and Me [Iyaayaa] Alone"** - (Soorat Al-Baqarah (2:41)). Allaah also says "**O My slaves who believe! Certainly, spacious is My earth. Therefore worship Me [Iyaayaa] (Alone)."** So how can you permit asking the dead for help when Allaah clearly states that we ask him **alone** for help?
 
 ### 2.2 Allaah's Statement Regarding The Prohibition of Calling Upon Anyone Besides Allaah
 
-> 
+> وَأَنَّ الْمَسَاجِدَ لِلَّهِ فَلَا تَدْعُوا مَعَ اللَّهِ أَحَدًا
 
-### 2.3 Allaah's Statement Refuting Calling Upon His Servants (such as Humans)
+> And the mosques are for Allah (Alone), **so invoke not anyone along with Allah**. - Soorat Al-Jinn (72:18)
+
+Here, Allaah reveals to His messenger *(sallallaahu 'alayhi wa sallam)* that the *Masaajid* (Mosques) are for Allaah, and to **not call with Allaah anyone else**. So this means that if anyone supplicates to anyone other than Allaah, then they are making the Mosque for other than Allaah. Look how Allaah puts these two in the same sentence. First, Allaah says that the *Masaajid* are for Allaah alone. Then he decudes from that (with His word "Fa", which means "so", which means the following is deduced from the previous statement), that we shouldn't call upon anyone other than Allaah. This means calling upon anyone besides Allaah is making the Mosque for someone besides Allaah.
