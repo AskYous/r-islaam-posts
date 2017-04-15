@@ -2,9 +2,9 @@
 
 ## 1. Introduction
 
-All praise is due to Allaah, the lord of the worlds. And may peace and blessings of Allaah be upon his messenger *(sallallaahu 'alayhi wa sallam)*.
+All praise is due to Allaah, the lord of the worlds. And may peace and blessings of Allaah be upon His messenger *(sallallaahu 'alayhi wa sallam)*.
 
-This post will be, *In Saa` Allaah*, a proof that all supplication is due to Allaah alone, and a refutation against those who say that supplication to the dead, **even if it be taking them as intermediaries**, is *Shirk* (polytheism / taking partners) with Allaah, giving evidences from The Qur'aan and the authentic Sunnah.
+This post will be, *In Saa` Allaah*, a proof that all supplication is due to Allaah alone, and a refutation against those who argue that supplication to the dead, **even if it be taking them as intermediaries**, is not *Shirk* (polytheism / taking partners) with Allaah. The proofs will be given from The Qur'aan and the authentic Sunnah.
 
 ## 2. Evidence from the Qur'aan
 
@@ -14,7 +14,9 @@ This post will be, *In Saa` Allaah*, a proof that all supplication is due to All
 
 > You (Alone) we worship, and **you (Alone) we ask for help** (for each and everything). - Soorat Al-Faatihah (1:5)
 
-Here, Allaah gives the Muslims a prayer they say to Allaah, which includes **"You alone do we worship, and you alone do we ask for help."** And the words that indicate that Allaah alone is worshipped and asked for help is the Arabic used in the quoted verse, which is "Iyyaaka", which means "You alone". Similarly, Allaah says to the children of Israel **"[A]nd fear Me and Me [Iyaayaa] Alone"** - (Soorat Al-Baqarah (2:41)). Allaah also says "**O My slaves who believe! Certainly, spacious is My earth. Therefore worship Me [Iyaayaa] (Alone)."** So how can you permit asking the dead for help when Allaah clearly states that we ask him **alone** for help?
+Here, Allaah gives the Muslims a prayer they say to Allaah, which includes **"You alone do we worship, and you alone do we ask for help."** And the words that indicate that Allaah **alone** is worshipped and He **alone** asked for help is the Arabic used in the quoted verse, which is "Iyyaaka", which means "You alone". Similarly, Allaah says to the children of Israel **"[A]nd fear Me and Me [Iyaayaa] Alone"** - (Soorat Al-Baqarah (2:41)). Allaah also says "**O My slaves who believe! Certainly, spacious is My earth. Therefore worship Me [Iyaayaa] (Alone)."**
+
+In the two verses using "Iyaayaa", Allaah uses "Iyaayaa", like "Iyaaka" in Soorat al-Faatihaha. The verse in Soorat Al-Faatihah is in second person form, while the later two verses are in the first-person form. This means that in the verse in Soorat al-Faatihah, the prayer is to admit to Allaah that "You alone (Iyaaka)" do we ask for help. So how can you permit asking the dead for help when Allaah clearly states that we ask Him **alone** for help?
 
 ### 2.2 Allaah's Statement Regarding The Prohibition of Calling Upon Anyone Besides Allaah
 
