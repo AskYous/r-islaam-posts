@@ -8,10 +8,16 @@ This post will be, *In Saa` Allaah*, a proof that all supplication is due to All
 
 ## 2. Evidence from the Qur'aan
 
-### 2.1 Allaah Says we Ask Him Alone for help
+### 2.1 Allaah's Statement Regarding Asking Him Alone for Help
 
 > إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِينُ
 
 > You (Alone) we worship, and **you (Alone) we ask for help** (for each and everything). - Soorat Al-Faatihah (1:5)
 
 Here, Allaah gives the Muslims a prayer they say to Allaah, which includes **"You alone do we worship, and you alone do we ask for help."** And the words that indicate that Allaah alone is worshipped and asked for help is the Arabic used in the quoted verse, which is "Iyyaaka", which means "You alone". Similarly, Allaah says to the children of Israel **"[A]nd fear Me and Me (Ar. Iyaayaa) Alone"** - (Soorat Al-Baqarah (2:41)). Allaah also says "**O My slaves who believe! Certainly, spacious is My earth. Therefore worship Me (Ar. Iyaayaa) (Alone)."** So how can you permit asking the dead for help when Allaah clearly states that we ask him **alone** for help?
+
+### 2.2 Allaah's Statement Regarding The Prohibition of Calling Upon Anyone Besides Allaah
+
+> 
+
+### 2.3 Allaah's Statement Refuting Calling Upon His Servants (such as Humans)
