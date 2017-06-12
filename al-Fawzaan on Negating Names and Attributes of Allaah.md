@@ -65,3 +65,15 @@ And He called some of His slaves hearer and seer. He said:
 > **إِنَّا خَلَقْنَا الْإِنسَانَ مِن نُّطْفَةٍ أَمْشَاجٍ نَّبْتَلِيهِ فَجَعَلْنَاهُ سَمِيعًا بَصِيرًا**
 
 >**"Verily, We have created man from Nutfah drops of mixed semen (discharge of man and woman), in order to try him, so We made him hearer, seer."** - Soorat al-Insaan (76:2)
+
+But one hearer is not similar to the other, nor is one seer, comparable to the other. He also called Himself the Kind and the Merciful saying:
+
+> **إِنَّ اللَّهَ بِالنَّاسِ لَرَءُوفٌ رَّحِيمٌ**
+
+> **"Verily, Allah is, for mankind, full of Kindness, Most Merciful."** - Soorat al-Hajj
+
+And He called one of His creatures kind and merciful saying:
+
+> **وَلَا يُحِيطُونَ بِشَيْءٍ مِّنْ عِلْمِهِ إِلَّا بِمَا شَاءَ**
+
+> **"And they will never compass anything of His Knowledge except that which He wills"** - Soorat al-Baqarah (2:255)
