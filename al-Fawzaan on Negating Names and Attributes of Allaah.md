@@ -1,5 +1,7 @@
 This is an except taken from Shaykh Saalih al-Fawzaan's book titled 'Aqeedatut-Tawheed, the english translation starting from page 103.
 
+Note: I used Muhsin Khan's translation of the verses cited below for speed.
+
 # [2.3] SECTION 3: Refutation of those who deny the Names and Attributes (of Allah) or deny a part thereof.
 
 Those who deny the Attributes of Allah are of three classes:
@@ -128,3 +130,4 @@ It becomes clear that this that the names and Attributes of Allah must be affirm
 
 > **"There is nothing like unto Him, and He is the All-Hearer, the All-Seer."** - Soorat Ash-Shooraa (42:11)
 
+So, He negated from Himself any similarity to (other) things while affirming the Attributes of Hearing and Sight for Himself. This indicates that the affirmation of Attributes (of Allah) does not necessitate similarity (with His creatures). It also indicates that it is mandatory to affirm these Attributes along with negation of likeness. This is the meaning of the statement of the *Ahl as-Sunnah wal-Jama'ah* regarding the affirmation of (His) Names and Attributes; 'Affirmation without comparison and absolution from defect without denial.'
