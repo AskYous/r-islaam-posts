@@ -124,7 +124,7 @@ Also, He - the Most High - said, while refuting those who worshipped the Calf:
 
 **4.** The affirmation of Attributes is a sign of perfection, while its negation is a defect. One who possesses no attributes is either non-existent or defective, and Allah is free of such.
 
-**5. ** There is no evidence for the interpretation of these Attributes away from their apparent meanings. So, such interpretations are invalid. Also, resigning the meaning thereof (to Allah), necessitates that Allah addressed us in the Qur'an with that which we understand not its meaning, despite His ordering us to invoke Him by His names. How can we invoke Him with what we understand not? He also commanded us to ponder over all His verses; so, how do we ponder over what cannot be understood?
+**5.** There is no evidence for the interpretation of these Attributes away from their apparent meanings. So, such interpretations are invalid. Also, resigning the meaning thereof (to Allah), necessitates that Allah addressed us in the Qur'an with that which we understand not its meaning, despite His ordering us to invoke Him by His names. How can we invoke Him with what we understand not? He also commanded us to ponder over all His verses; so, how do we ponder over what cannot be understood?
 
 It becomes clear that this that the names and Attributes of Allah must be affirmed in a way that befits Allah; negating any similarity (in its real essence) with those of creatures as Allah - the most High - said:
 
