@@ -2,6 +2,8 @@ This is an except taken from Shaykh Saalih al-Fawzaan's book titled 'Aqeedatut-T
 
 Note: I used Muhsin Khan's translation of the verses cited below for speed.
 
+The following is the Shaykh's words:
+
 # [2.3] SECTION 3: Refutation of those who deny the Names and Attributes (of Allah) or deny a part thereof.
 
 Those who deny the Attributes of Allah are of three classes:
@@ -10,11 +12,11 @@ Those who deny the Attributes of Allah are of three classes:
 2. **The Mu'tazilah**: They are the followers of Wasil bin Ata' who dissociated himself from the sitting of Hasan Al-Basri. These people affirmed the Names (of Allah), with the implication that they are wordings alone, devoid of meanings, and they deny all (His) Attributes
 3. **The Ashaa'irah, Al-Maturidiyyah and those who follow them**: These people affirm the Names and some Attributes and negate some (Attributes).
 
-The confusion upon which they all based their opinions, is an attempt to flee from comparing Allah to His creatures (according to their thinking), because some creatures are also referred to with some of these Names and are described with some of these Attributes. Therefore, if there is similarity in the wordings of the Names and Attributes, and their meanings, their realities must necessarily be the same (according to them). This necessitates likening the creature with the Creator in their opinion. SO they chose to confront this in one of two ways.
+The confusion upon which they all based their opinions, is an attempt to flee from comparing Allah to His creatures (according to their thinking), because some creatures are also referred to with some of these Names and are described with some of these Attributes. Therefore, if there is similarity in the wordings of the Names and Attributes, and their meanings, their realities must necessarily be the same (according to them). This necessitates likening the creature with the Creator in their opinion. So they chose to confront this in one of two ways.
 
 **a.** Either by twitsting the texts (or Qur'an and Sunnah) establishing the Names and Attributes (of Allah) away from their apparent meanings, such as interpreting the Face to mean self and the Hand to mean bounty.
 
-**b.** Or resigning the meaning of these texts (or Qur'an and Sunnah) to Allah. So, they say *'Allah Alone those the intent thereof,'* believing that its apparent meaning is not the intent.
+**b.** Or resigning the meaning of these texts (or Qur'an and Sunnah) to Allah. So, they say *'Allah Alone knows the intent thereof,'* believing that its apparent meaning is not the intent.
 
 The first people known to have denied the Names and Attribute (of Allah) are some Arab Idolaters, about whom Allah - the Most High - said:
 
@@ -28,7 +30,7 @@ Ibn Jarir mentioned that this occurrence was during the Treaty of *Hudaybiyyah;*
 
 The *Quraysh* said: *'As for ar-Rahman (The Most Gracious), we know Him not.'*
 
-Anso, Ibn Jarir narrated from Ibn 'Abbas: *'The Messenger of Allah (sallallaahu 'alayhi wa sallam) used to supplicate while in prostration (saying): "O Rahman (Most Gracious), O Rahim (Most Merciful)."* So, the idolaters said: *"So, he thinks he is invoking only one while he mentions two!"* So, Allah revealed:
+Also, Ibn Jarir narrated from Ibn 'Abbas: *'The Messenger of Allah (sallallaahu 'alayhi wa sallam) used to supplicate while in prostration (saying): "O Rahman (Most Gracious), O Rahim (Most Merciful)."* So, the idolaters said: *"So, he thinks he is invoking only one while he mentions two!"* So, Allah revealed:
 
 > **قُلِ ادْعُوا اللَّهَ أَوِ ادْعُوا الرَّحْمَٰنَ ۖ أَيًّا مَّا تَدْعُوا فَلَهُ الْأَسْمَاءُ الْحُسْنَىٰ ۚ وَلَا تَجْهَرْ بِصَلَاتِكَ وَلَا تُخَافِتْ بِهَا وَابْتَغِ بَيْنَ ذَٰلِكَ سَبِيلًا**
 
@@ -106,7 +108,7 @@ He also described himself with Power saying:
 
 > **"Allah is He Who created you in (a state of) weakness, then gave you strength after weakness, then after strength gave (you) weakness and grey hair."** - Soorat ar-Room (30:54)
 
-...and so on. It is known that the Names and Attributes of Allah are specific to Him and are according to what befits Him, while the names and attributes of creatures are specific to them and are according to what befits them. It is not necessary that similarity in wordings and meanings should imply similarity in reality (true nature). This is due to the lack of comparability between the two. This is obvious , and al praise be to Allah.
+...and so on. It is known that the Names and Attributes of Allah are specific to Him and are according to what befits Him, while the names and attributes of creatures are specific to them and are according to what befits them. It is not necessary that similarity in wordings and meanings should imply similarity in reality (true nature). This is due to the lack of comparability between the two. This is obvious, and all praise be to Allah.
 
 **3.** One who does not possess Perfect Attributes is not fit to be the God of the universe. This is why Ibrahim said to his father:
 
@@ -122,7 +124,7 @@ Also, He - the Most High - said, while refuting those who worshipped the Calf:
 
 **4.** The affirmation of Attributes is a sign of perfection, while its negation is a defect. One who possesses no attributes is either non-existent or defective, and Allah is free of such.
 
-**5. ** There is no evience for the interpretation of these Attributes away from their apparent meanings. So, such interpretations are invalid. Also, resigning the meaning thereof (to Allah), necessitates that Allah addressed us in the Qur'an with that which we understant not its meaning, despite His ordering us to invoke Him by His names. How can we invoke Him with what we understand not? He also commanded us to ponder over all His verses; so, how do we ponder over what cannot be understood?
+**5. ** There is no evidence for the interpretation of these Attributes away from their apparent meanings. So, such interpretations are invalid. Also, resigning the meaning thereof (to Allah), necessitates that Allah addressed us in the Qur'an with that which we understand not its meaning, despite His ordering us to invoke Him by His names. How can we invoke Him with what we understand not? He also commanded us to ponder over all His verses; so, how do we ponder over what cannot be understood?
 
 It becomes clear that this that the names and Attributes of Allah must be affirmed in a way that befits Allah; negating any similarity (in its real essence) with those of creatures as Allah - the most High - said:
 
