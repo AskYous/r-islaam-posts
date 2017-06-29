@@ -46,90 +46,90 @@ These polytheists are the predecessors (fore-runners) of the *Jaymiyyah*, *Mu'ta
 
 Their refutation is from several perspectives:
 
-**1.** Allah, Glorified and Most High, affirmed these Names and Attributes for Himself, and His messenger affirmed them for Him. So, denying them or part of them is a denial of what Allah and His messenger have affirmed. This is opposition to Allah and His messenger (sallallaahu 'alayhi wa sallam).
+1. Allah, Glorified and Most High, affirmed these Names and Attributes for Himself, and His messenger affirmed them for Him. So, denying them or part of them is a denial of what Allah and His messenger have affirmed. This is opposition to Allah and His messenger (sallallaahu 'alayhi wa sallam).
 
-**2.** It is not necessary that by the existence of these Attributes amongst creatures or the existence of some creatures known by these Names, that there be any similarity between Allah and His creatures. Allah, Glorified is He, has Names and Attributes, which are specific to Him and creatures have names and attributes, which are specific to them. Just as Allah, Glorified and Most High, has a Self that is not similar to those of created beings, He also has Names and Attributes that are not similar to their names and attributes. Similarity in name and general meaning does not necessitate similarity in reality. Allah called himself *'Alim* (the All-Knower) and called on of His slaves *'Alim* (knowledgeable). He said:
+2. It is not necessary that by the existence of these Attributes amongst creatures or the existence of some creatures known by these Names, that there be any similarity between Allah and His creatures. Allah, Glorified is He, has Names and Attributes, which are specific to Him and creatures have names and attributes, which are specific to them. Just as Allah, Glorified and Most High, has a Self that is not similar to those of created beings, He also has Names and Attributes that are not similar to their names and attributes. Similarity in name and general meaning does not necessitate similarity in reality. Allah called himself *'Alim* (the All-Knower) and called on of His slaves *'Alim* (knowledgeable). He said:
 
-> **فَأَوْجَسَ مِنْهُمْ خِيفَةً ۖ قَالُوا لَا تَخَفْ ۖ وَبَشَّرُوهُ بِغُلَامٍ عَلِيمٍ**
+ > **فَأَوْجَسَ مِنْهُمْ خِيفَةً ۖ قَالُوا لَا تَخَفْ ۖ وَبَشَّرُوهُ بِغُلَامٍ عَلِيمٍ**
 
-> **"Then he conceived a fear of them (when they ate not). They said: "Fear not." And they gave him glad tidings of an intelligent son, having knowledge (about Allah and His religion of True Monotheism)."** - Soorat adh-Dhaariyaat (51:28)
+ > **"Then he conceived a fear of them (when they ate not). They said: "Fear not." And they gave him glad tidings of an intelligent son, having knowledge (about Allah and His religion of True Monotheism)."** - Soorat adh-Dhaariyaat (51:28)
 
-That is, Ishaq (Isaac). He also called another *Halim* (forbearing). He said:
+ That is, Ishaq (Isaac). He also called another *Halim* (forbearing). He said:
 
-> **فَبَشَّرْنَاهُ بِغُلَامٍ حَلِيمٍ**
+ > **فَبَشَّرْنَاهُ بِغُلَامٍ حَلِيمٍ**
 
-> **"So We gave him the glad tidings of a forbearing boy."** - Soorat ass-Saaffaat (37:101)
+ > **"So We gave him the glad tidings of a forbearing boy."** - Soorat ass-Saaffaat (37:101)
 
-That is, Ismail. However, a knowledgeable one is not similar to the other, nor is a forbearing one similar to another. He also called Himself saying:
+ That is, Ismail. However, a knowledgeable one is not similar to the other, nor is a forbearing one similar to another. He also called Himself saying:
 
-> **إِنَّ اللَّهَ كَانَ سَمِيعًا بَصِيرًا**
+ > **إِنَّ اللَّهَ كَانَ سَمِيعًا بَصِيرًا**
 
-> **"Truly, Allah is Ever All-Hearer, All-Seer."** - Soorat an-Nisaa' (4:58)
+ > **"Truly, Allah is Ever All-Hearer, All-Seer."** - Soorat an-Nisaa' (4:58)
 
-And He called some of His slaves hearer and seer. He said:
+ And He called some of His slaves hearer and seer. He said:
 
-> **إِنَّا خَلَقْنَا الْإِنسَانَ مِن نُّطْفَةٍ أَمْشَاجٍ نَّبْتَلِيهِ فَجَعَلْنَاهُ سَمِيعًا بَصِيرًا**
+ > **إِنَّا خَلَقْنَا الْإِنسَانَ مِن نُّطْفَةٍ أَمْشَاجٍ نَّبْتَلِيهِ فَجَعَلْنَاهُ سَمِيعًا بَصِيرًا**
 
->**"Verily, We have created man from Nutfah drops of mixed semen (discharge of man and woman), in order to try him, so We made him hearer, seer."** - Soorat al-Insaan (76:2)
+ >**"Verily, We have created man from Nutfah drops of mixed semen (discharge of man and woman), in order to try him, so We made him hearer, seer."** - Soorat al-Insaan (76:2)
 
-But one hearer is not similar to the other, nor is one seer, comparable to the other. He also called Himself the Kind and the Merciful saying:
+ But one hearer is not similar to the other, nor is one seer, comparable to the other. He also called Himself the Kind and the Merciful saying:
 
-> **إِنَّ اللَّهَ بِالنَّاسِ لَرَءُوفٌ رَّحِيمٌ**
+ > **إِنَّ اللَّهَ بِالنَّاسِ لَرَءُوفٌ رَّحِيمٌ**
 
-> **"Verily, Allah is, for mankind, full of Kindness, Most Merciful."** - Soorat al-Hajj
+ > **"Verily, Allah is, for mankind, full of Kindness, Most Merciful."** - Soorat al-Hajj
 
-And He called one of His creatures kind and merciful saying:
+ And He called one of His creatures kind and merciful saying:
 
-> **وَلَا يُحِيطُونَ بِشَيْءٍ مِّنْ عِلْمِهِ إِلَّا بِمَا شَاءَ**
+ > **وَلَا يُحِيطُونَ بِشَيْءٍ مِّنْ عِلْمِهِ إِلَّا بِمَا شَاءَ**
 
-> **"And they will never compass anything of His Knowledge except that which He wills"** - Soorat al-Baqarah (2:255)
+ > **"And they will never compass anything of His Knowledge except that which He wills"** - Soorat al-Baqarah (2:255)
 
-So He described Himself with knowledge. He also described His creatures with knowledge, saying:
+ So He described Himself with knowledge. He also described His creatures with knowledge, saying:
 
-> **"وَيَسْأَلُونَكَ عَنِ الرُّوحِ ۖ قُلِ الرُّوحُ مِنْ أَمْرِ رَبِّي وَمَا أُوتِيتُم مِّنَ الْعِلْمِ إِلَّا قَلِيلًا"**
+ > **"وَيَسْأَلُونَكَ عَنِ الرُّوحِ ۖ قُلِ الرُّوحُ مِنْ أَمْرِ رَبِّي وَمَا أُوتِيتُم مِّنَ الْعِلْمِ إِلَّا قَلِيلًا"**
 
-> **"And they ask you (O Muhammad SAW) concerning the Ruh (the Spirit); Say: "The Ruh (the Spirit): it is one of the things, the knowledge of which is only with my Lord. And of knowledge, you (mankind) have been given only a little."** - Soorat al-Israa (17:85)
+ > **"And they ask you (O Muhammad SAW) concerning the Ruh (the Spirit); Say: "The Ruh (the Spirit): it is one of the things, the knowledge of which is only with my Lord. And of knowledge, you (mankind) have been given only a little."** - Soorat al-Israa (17:85)
 
-He also said:
+ He also said:
 
-> **وَفَوْقَ كُلِّ ذِي عِلْمٍ عَلِيمٌ**
+ > **وَفَوْقَ كُلِّ ذِي عِلْمٍ عَلِيمٌ**
 
-> **"[B]ut over all those endowed with knowledge is the All-Knowing (Allah)."** -  Soorat Yusuf (12:76)
+ > **"[B]ut over all those endowed with knowledge is the All-Knowing (Allah)."** -  Soorat Yusuf (12:76)
 
-He also said:
+ He also said:
 
-> **وَقَالَ الَّذِينَ أُوتُوا الْعِلْمَ **
+ > **وَقَالَ الَّذِينَ أُوتُوا الْعِلْمَ **
 
-> **"But those who had been given (religious) knowledge said..."** - Soorat al-Qasas (28:80)
+ > **"But those who had been given (religious) knowledge said..."** - Soorat al-Qasas (28:80)
 
-He also described himself with Power saying:
+ He also described himself with Power saying:
 
-> **اللَّهُ الَّذِي خَلَقَكُم مِّن ضَعْفٍ ثُمَّ جَعَلَ مِن بَعْدِ ضَعْفٍ قُوَّةً ثُمَّ جَعَلَ مِن بَعْدِ قُوَّةٍ ضَعْفًا وَشَيْبَةً**
+ > **اللَّهُ الَّذِي خَلَقَكُم مِّن ضَعْفٍ ثُمَّ جَعَلَ مِن بَعْدِ ضَعْفٍ قُوَّةً ثُمَّ جَعَلَ مِن بَعْدِ قُوَّةٍ ضَعْفًا وَشَيْبَةً**
 
-> **"Allah is He Who created you in (a state of) weakness, then gave you strength after weakness, then after strength gave (you) weakness and grey hair."** - Soorat ar-Room (30:54)
+ > **"Allah is He Who created you in (a state of) weakness, then gave you strength after weakness, then after strength gave (you) weakness and grey hair."** - Soorat ar-Room (30:54)
 
-...and so on. It is known that the Names and Attributes of Allah are specific to Him and are according to what befits Him, while the names and attributes of creatures are specific to them and are according to what befits them. It is not necessary that similarity in wordings and meanings should imply similarity in reality (true nature). This is due to the lack of comparability between the two. This is obvious, and all praise be to Allah.
+ ...and so on. It is known that the Names and Attributes of Allah are specific to Him and are according to what befits Him, while the names and attributes of creatures are specific to them and are according to what befits them. It is not necessary that similarity in wordings and meanings should imply similarity in reality (true nature). This is due to the lack of comparability between the two. This is obvious, and all praise be to Allah.
 
-**3.** One who does not possess Perfect Attributes is not fit to be the God of the universe. This is why Ibrahim said to his father:
+3. One who does not possess Perfect Attributes is not fit to be the God of the universe. This is why Ibrahim said to his father:
 
-> **لِمَ تَعْبُدُ مَا لَا يَسْمَعُ وَلَا يُبْصِرُ**
+ > **لِمَ تَعْبُدُ مَا لَا يَسْمَعُ وَلَا يُبْصِرُ**
 
-> **"Why do you worship that which hears not, sees not..."** - Soorat Maryum (19:42)
+ > **"Why do you worship that which hears not, sees not..."** - Soorat Maryum (19:42)
 
-Also, He - the Most High - said, while refuting those who worshipped the Calf:
+ Also, He - the Most High - said, while refuting those who worshipped the Calf:
 
-> **أَلَمْ يَرَوْا أَنَّهُ لَا يُكَلِّمُهُمْ وَلَا يَهْدِيهِمْ سَبِيلًا**
+ > **أَلَمْ يَرَوْا أَنَّهُ لَا يُكَلِّمُهُمْ وَلَا يَهْدِيهِمْ سَبِيلًا**
 
-> **"Did they not see that it could neither speak to them nor guide them to the way?"** - Soorat al-A'raaf (7:148)
+ > **"Did they not see that it could neither speak to them nor guide them to the way?"** - Soorat al-A'raaf (7:148)
 
-**4.** The affirmation of Attributes is a sign of perfection, while its negation is a defect. One who possesses no attributes is either non-existent or defective, and Allah is free of such.
+4. The affirmation of Attributes is a sign of perfection, while its negation is a defect. One who possesses no attributes is either non-existent or defective, and Allah is free of such.
 
-**5.** There is no evidence for the interpretation of these Attributes away from their apparent meanings. So, such interpretations are invalid. Also, resigning the meaning thereof (to Allah), necessitates that Allah addressed us in the Qur'an with that which we understand not its meaning, despite His ordering us to invoke Him by His names. How can we invoke Him with what we understand not? He also commanded us to ponder over all His verses; so, how do we ponder over what cannot be understood?
+5. There is no evidence for the interpretation of these Attributes away from their apparent meanings. So, such interpretations are invalid. Also, resigning the meaning thereof (to Allah), necessitates that Allah addressed us in the Qur'an with that which we understand not its meaning, despite His ordering us to invoke Him by His names. How can we invoke Him with what we understand not? He also commanded us to ponder over all His verses; so, how do we ponder over what cannot be understood?
 
-It becomes clear that this that the names and Attributes of Allah must be affirmed in a way that befits Allah; negating any similarity (in its real essence) with those of creatures as Allah - the most High - said:
+ It becomes clear that this that the names and Attributes of Allah must be affirmed in a way that befits Allah; negating any similarity (in its real essence) with those of creatures as Allah - the most High - said:
 
-> **لَيْسَ كَمِثْلِهِ شَيْءٌ ۖ وَهُوَ السَّمِيعُ الْبَصِيرُ**
+ > **لَيْسَ كَمِثْلِهِ شَيْءٌ ۖ وَهُوَ السَّمِيعُ الْبَصِيرُ**
 
-> **"There is nothing like unto Him, and He is the All-Hearer, the All-Seer."** - Soorat Ash-Shooraa (42:11)
+ > **"There is nothing like unto Him, and He is the All-Hearer, the All-Seer."** - Soorat Ash-Shooraa (42:11)
 
-So, He negated from Himself any similarity to (other) things while affirming the Attributes of Hearing and Sight for Himself. This indicates that the affirmation of Attributes (of Allah) does not necessitate similarity (with His creatures). It also indicates that it is mandatory to affirm these Attributes along with negation of likeness. This is the meaning of the statement of the *Ahl as-Sunnah wal-Jama'ah* regarding the affirmation of (His) Names and Attributes; 'Affirmation without comparison and absolution from defect without denial.'
+ So, He negated from Himself any similarity to (other) things while affirming the Attributes of Hearing and Sight for Himself. This indicates that the affirmation of Attributes (of Allah) does not necessitate similarity (with His creatures). It also indicates that it is mandatory to affirm these Attributes along with negation of likeness. This is the meaning of the statement of the *Ahl as-Sunnah wal-Jama'ah* regarding the affirmation of (His) Names and Attributes; 'Affirmation without comparison and absolution from defect without denial.'
