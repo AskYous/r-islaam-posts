@@ -14,9 +14,9 @@ Those who deny the Attributes of Allah are of three classes:
 
 The confusion upon which they all based their opinions, is an attempt to flee from comparing Allah to His creatures (according to their thinking), because some creatures are also referred to with some of these Names and are described with some of these Attributes. Therefore, if there is similarity in the wordings of the Names and Attributes, and their meanings, their realities must necessarily be the same (according to them). This necessitates likening the creature with the Creator in their opinion. So they chose to confront this in one of two ways.
 
-**a.** Either by twitsting the texts (or Qur'an and Sunnah) establishing the Names and Attributes (of Allah) away from their apparent meanings, such as interpreting the Face to mean self and the Hand to mean bounty.
+* **a.** Either by twitsting the texts (or Qur'an and Sunnah) establishing the Names and Attributes (of Allah) away from their apparent meanings, such as interpreting the Face to mean self and the Hand to mean bounty.
 
-**b.** Or resigning the meaning of these texts (or Qur'an and Sunnah) to Allah. So, they say *'Allah Alone knows the intent thereof,'* believing that its apparent meaning is not the intent.
+* **b.** Or resigning the meaning of these texts (or Qur'an and Sunnah) to Allah. So, they say *'Allah Alone knows the intent thereof,'* believing that its apparent meaning is not the intent.
 
 The first people known to have denied the Names and Attribute (of Allah) are some Arab Idolaters, about whom Allah - the Most High - said:
 
